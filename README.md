@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Sophia
+- 👀 I’m interested in Coding, gamedev, and learning new langs
+- 🌱 I’m currently learning C#, japanese, and stuff like that
+- 📫 How to reach me 🌺冬子ちゃん🌺#2007 on discord
